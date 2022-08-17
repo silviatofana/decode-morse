@@ -21,7 +21,11 @@ During your vacation at the seaside, time after time you find old bottles with p
 - LinkedIn: [@silviatofana](www.linkedin.com/in/silvia-tofana-10b852186)
 - Twitter: [@silviatofana](https://twitter.com/SilviaTofana)
 
+👤 ** Maen Al-Khraisha **
 
+- Linkedin [victor-David](linkedin.com/in/victor-chiemerie-302a97230)
+- Twitter [victor-David](https://twitter.com/Victorjheart)
+- Github: [@Victor-David](https://github.com/jheart-vic)
 
 ## 🤝 Contributing
 
